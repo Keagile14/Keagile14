@@ -1,4 +1,5 @@
-# 💫 About Me:
+# 💫 Hi, I'm Keagile.
+
 🎓 Software Engineering Alumnus from WeThinkCode_<br>📖 Current Student: Pursuing a Bachelor of Information Technology in Business Systems at IIE Rosebank International<br>📚 Reader: I love diving into books to expand my horizons and discover new perspectives.<br>♟️ Chess Enthusiast: Always looking to level up my tactical thinking. Up for a challenge? Hit me up for a match! 🤠
 
 
